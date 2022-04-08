@@ -7,4 +7,4 @@
 * 🌍 I can write and speak english fluenty
 * ⚡️ Educated designer and artist
 * 💬 Ask me about responsive website building, design, development
-* 📫 Contact me: [Discord](https://discord.gg/mJ2UbURpgN)
+* 📫 Contact me: [Discord](https://discord.gg/mJ2UbURpgNdddd)
